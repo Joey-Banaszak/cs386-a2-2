@@ -4,4 +4,4 @@
 
 # Izaac
 
-Computer Science and Biomedical Science Major, and overall swell guy!
+Computer Science and Biomedical Science Major, robothon champion, and overall swell guy!
